@@ -1,1 +1,1 @@
-# nooriacademy
+Ummati Academy
